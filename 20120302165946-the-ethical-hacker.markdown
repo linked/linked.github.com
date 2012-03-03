@@ -125,3 +125,7 @@ haven't met you yet, introduce yourself, and prepare for me to talk nonsense
 until I feel everything coming out of your head represents the better interests
 of the human race. I'm on a mission to change the world, and it starts with
 fixing hacker culture.
+
+Love, peace and chicken grease
+
+--Leeward
